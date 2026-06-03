@@ -35,3 +35,8 @@
 
 - 15 min at 425 F
 - 40-50 min at 350 F
+
+## Decoration
+
+- Add whipping cream on top of the pie
+- Sprinkle some cinnamon powder for extra flavour!
