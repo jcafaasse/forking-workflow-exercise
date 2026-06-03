@@ -20,3 +20,9 @@
 - add salt
 - and mix well
 - enjoy!
+
+## Add some texture
+
+- dice some tomatoes
+- remove the watery inside and add to the mix
+
