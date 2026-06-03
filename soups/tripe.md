@@ -1,6 +1,5 @@
 # Mushroom soup recipe
 
-
 ## Ingredients
 
 - **1 lb** (450g) mixed mushrooms (e.g., button, cremini, shiitake), cleaned and sliced
